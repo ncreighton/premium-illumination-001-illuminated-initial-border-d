@@ -1,0 +1,2 @@
+# premium-illumination-001-illuminated-initial-border-d
+Professional heritage-calligraphy Notion template — without the professional price tag.  Pre-built databases, views, and formula fields — ready to duplicate and use. Mobile-optimized for Notion iOS and Android — works everywhere you work.  ## What's Included  - Illuminated Initial &amp; Border Design Planning Hub — fully configured and ready to use - P
